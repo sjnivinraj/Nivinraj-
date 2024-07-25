@@ -1,2 +1,2 @@
 # Nivinraj-
-MB 25 capstone project assigned 
+crafting and compelling web presence 
